@@ -14,7 +14,6 @@ It is important for me to do what will certainly benefit. I value the time, opin
 - 🔎 Cypress
 - 🔎 Adobe Photoshop, Figma
 - 🔎 Jira, BitBucket
-- 🔎 Microsoft Word / Microsoft PowerPoint
 - 🔎 1С
 
 ### 𝙇𝙖𝙣𝙜𝙪𝙖𝙜𝙚𝙨 𝙄 𝙨𝙥𝙚𝙖𝙠:
